@@ -1,0 +1,12 @@
+- 👋 ola meu nome é @japa-ferreira
+- 👀 tenho um sonho de ser perita criminal
+- 🌱 meus pais são agrícolas
+- 💞️ naõ tenho namorado skkskks
+- 📫 moro no sitio des dos meus 8 anos
+- tenho 1 irmã
+- tenho minha propria casa e moro com meus pais e com minha irmã
+- e não trabalho ainda mas pretendo
+- amo dormir, comer e animais
+- tenho uma melhor amiga a agatta amo ela
+- gosto de jogar futebol as vezes 
+- minha comida favorita 
