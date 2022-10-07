@@ -1,4 +1,4 @@
-- 👋 ola meu nome é @japa-ferreira
+- 👋 ola meu nome é ingrid dauana
 - 👀 tenho um sonho de ser perita criminal
 - 🌱 meus pais são agrícolas
 - 💞️ não namoro ksksksks
